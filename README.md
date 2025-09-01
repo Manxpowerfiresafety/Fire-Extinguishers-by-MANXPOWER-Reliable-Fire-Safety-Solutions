@@ -23,3 +23,15 @@ Wide Product Range: From industrial-grade extinguishers to compact safety tools,
 Investing in MANXPOWER <a href="https://manximpex.com/fire-extinguisher-2/" title="fire extinguishers" alt"fire extinguishers" <a>fire extinguishers</a> is a step toward creating a safer home, workplace, or industrial facility. With options like ABC Dry Chemical Extinguishers, CO2 Fire Extinguishers, AFFF Foam Extinguishers, and Fire Blankets, MANXPOWER ensures you are well-equipped to handle fire emergencies effectively. Choose MANXPOWER for trusted protection and peace of mind.<br>
 <h3>About us:</h3>
 Manx Impex, an ISO 9001:2015 certified company, established in 2015 is a partnership firm located in the heart of Delhi. We have earned an excellent name as a firm since we have started, and our drive to serve our customers helps us achieve greater heights every day. We supply/distribute our products to numerous businesses as well as customers in different parts of India, and we are constantly trying to increase our supply.<br>
+<h3>Get in touch with us:</h3>
+<li>For order,visit: https://manximpex.com/fire-extinguisher-2/ </li><br>
+<li>E-mail: info@manximpex.com </li><br>
+<li>Contact number: +91- 7428115550, +91- 7428115550.</li><br>
+<li>Address: 3963/9, Ground Floor, City Market, Ajmeri Gate, Delhi 110006.</li><br>
+<h3>Follow us on:</h3>
+<li>Instagram: https://www.instagram.com/manximpex/ </li><br>
+<li><b>Facebook: https://www.facebook.com/manximpex/ </b></li><br>
+<li>LinkedIn: https://in.linkedin.com/company/manx-impex </li><br>
+<li>Pinterest: https://in.pinterest.com/manximpex/ </li><br>
+<h3>People also searches:</h3>
+<a href="https://manximpex.com/fire-extinguisher-2/" title="Fire extinguisher Delhi" alt"Fire extinguisher Delhi" <a>Fire extinguisher Delhi</a> | <a href="https://manximpex.com/fire-extinguisher-2/" title="Fire Extinguisher Dealers in Rajasthan" alt"Fire Extinguisher Dealers in Rajasthan" <a>Fire Extinguisher Dealers in Rajasthan </a> | <a href="https://manximpex.com/fire-extinguisher-2/" title="ABC rated fire extinguishers" alt"ABC rated fire extinguishers" <a>ABC rated fire extinguishers </a> | <a href="https://manximpex.com/fire-extinguisher-2/" title="Fire extinguisher manufacturer in Delhi" alt"Fire extinguisher manufacturer in Delhi" <a>Fire extinguisher manufacturer in Delhi</a> | <a href="https://manximpex.com/fire-extinguisher-2/" title="Fire extinguisher near me" alt"Fire extinguisher near me" <a>Fire extinguisher near me</a>
